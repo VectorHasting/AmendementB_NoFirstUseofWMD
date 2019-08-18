@@ -1,4 +1,4 @@
-# AmendemenB_NoFirstUseofWMD
+# AmendementB_NoFirstUseofWMD
 Proposing an amendment to the Constitution of the United States to prevent unauthorized first use by the United States of Weapons of Mass Destruction.
 
 This is one of 10 Amendements Vector Hasting proposes to the US Constitution to preserve Freedom in the 21st Century.
