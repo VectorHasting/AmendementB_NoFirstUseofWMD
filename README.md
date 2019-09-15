@@ -5,4 +5,6 @@ This is one of 10 Amendements Vector Hasting proposes to the US Constitution to 
 
 This is based on the US Constitution, and on the book: The Bill of Rights Part Two: Ten New Amendments to Protect the First Ten, independetly published in 2018
 
+Online petition at: http://chng.it/rzScVwGV
+
 #ConstitutionalAmendment #Constitution #Amendment #AmendTheConstitution #NoWMD
